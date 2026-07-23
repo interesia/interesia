@@ -1,4 +1,4 @@
-Dentnis Dental Clinic, hasta odaklı yaklaşımı ve dijital diş hekimliği teknolojileri ile yüksek standartlarda tedavi sunmayı hedefler. Uzman hekim kadrosu ile hem estetik hem de fonksiyonel diş tedavilerinde kişiye özel çözümler üretir.
+Dentnis Dental Clinic, hasta odaklı yaklaşımı ve dijital diş hekimliği teknolojileri ile yüksek standartlarda tedavi sunmayı hedefler. Uzman hekim kadrosu ile hem estetik hem de fonksiyonel diş tedavilerinde kişiye özel çözümler üretir.https://nano-tox.com
 🌟 Hizmetlerimiz
 Gülüş Tasarımı (Smile Design)
 Diş İmplant Tedavisi
